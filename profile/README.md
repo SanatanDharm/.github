@@ -1,7 +1,5 @@
 # ॐ नमः शिवाय
-इस संगठन का उपयोग करके हम क्या उद्देश्य प्राप्त करना चाहते हैं?
 
-जल्द ही और उद्देश्य जोड़े जाएंगे।
+My motivation is driven by the desire to prevent the loss of valuable knowledge and to make it easily accessible to future generations. The destruction of the ancient Nalanda University as an example of the kind of loss that can occur over time. By digitizing religious books, we might be able to ensure that they are preserved for the future and can be accessed by people all over the world. This could also help to promote greater understanding and appreciation of different cultures and traditions.
 
 ## धर्मो रक्षति रक्षितः
-1. इस संगठन में अधिक से अधिक लोगों को जोड़ने की आवश्यकता है. क्योंकि हमें योगदान करने के लिए और लोगों की आवश्यकता है
